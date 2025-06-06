@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Just1Morpheus
+- 👋 Hi, I’m Noah
 - 👀 Areas of Interest:
 Product Strategy & Lifecycle Management
 
